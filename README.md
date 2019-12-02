@@ -1,0 +1,1 @@
+# paired_adopt_dont_shop
